@@ -1,0 +1,1 @@
+The Kind Heart Charity Project is a compassionate initiative aimed at making a meaningful impact in the lives of those in need. Leveraging the power of technology, this project provides a platform for individuals and organizations to contribute to charitable causes, spread kindness, and uplift the underprivileged.
